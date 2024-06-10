@@ -8,8 +8,8 @@ Meu nome é Nathalia
 
 ### Você pode entrar em contato comigo :mailbox
 
-@gmail.com
+nathaliabianca2108@gmail.com
 
-@marcelopaludetto
+@_nathaliabianca
 
 ![descrição do GIF](link GIF do Tenor)
